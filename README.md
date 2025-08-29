@@ -1,5 +1,5 @@
 # 👩🏻‍💻Émillie Dias
-**`Data Analyst | BI & Big Data Specialist `**
+**`Data Analyst | Business Intelligence | Big Data Specialist `**
 
 ---
 
